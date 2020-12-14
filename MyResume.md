@@ -1,7 +1,7 @@
 **JULIO SURIEL**<br>
 julio.suriel@gmail.com<br>
 (617) 233-6656<br>
-[Github] (github.com/TheToastedTowel) | [LinkedIn] (linkedin.com/in/juliosuriel/)
+[Github] (https://github.com/TheToastedTowel) | [LinkedIn] (https://linkedin.com/in/juliosuriel/)
 
 
 <h2>EDUCATION</h2>
